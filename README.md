@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Moulik2009
+- 👀 I’m interested in coding, gaming
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on nothing :)
+- 📫 How to reach me mouliks23@gmail.com
